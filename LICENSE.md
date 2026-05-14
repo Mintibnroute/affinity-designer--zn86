@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Affinity Designer for macOS script with rare Affinity Designer for macOS Script | non-destructive editing + export presets. Featuring non-destructive editing and
 
 
 
